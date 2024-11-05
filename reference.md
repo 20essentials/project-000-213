@@ -1,0 +1,4 @@
+- **Reference ⬇️**
+  - [IMAGE 1](https://wallhaven.cc/w/x199ml)
+  - [IMAGE 2](https://wallhaven.cc/w/4lvpwq)
+  - [CARD HOVER TRANSITION](https://youtu.be/avdjKAN9P-o?si=broQSgUFzAhIrqqw)
